@@ -1,3 +1,4 @@
-## Hi! i like prototype i do!
+## Hi this is me hi im cool yea!
 
-<img width="640" height="314" alt="SPOILER_the-prototype-got-leaked-and-this-is-what-it-looks-like-v0-vbugy4wfcyjg1" src="https://github.com/user-attachments/assets/bcc00c05-051b-4336-8256-547c0c938658" />
+
+![Peacemaker_vigilante_png_by_metropolis_hero1125_deygolk-fullview](https://github.com/user-attachments/assets/2d7e7e06-bd3c-40a1-8c49-f4759d0aa772)
